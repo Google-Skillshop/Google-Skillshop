@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Google-Skillshop
+- 👀 I’m interested in Digital Marketing, Google Ads, SEO
+- 🌱 I’m currently learning HTML, CSS, Python
+- 💞️ I’m looking to collaborate on Cross-border e-commerce
+- 📫 How to reach me plato@adtodo.com
+- 🎨 My website is [adtodo.com](https://adtodo.com)
+- 🌏 I live in Guangzhou, China
